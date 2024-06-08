@@ -1,1 +1,1 @@
-#### [HomePage of Bohao Li](https://Bohao-Lee.github.io/Bohao-Lee.htm).
+#### [HomePage of Bohao Li](https://bohao-lee.github.io/).
